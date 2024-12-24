@@ -2,7 +2,7 @@
 
 -💻my work is game making , programming , editing
 
--👤you use the my source codes
+-👤you can use the my source codes
 
--🙂and your wellcome!
+-🙂and wellcome!
 
